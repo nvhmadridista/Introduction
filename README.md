@@ -1,4 +1,4 @@
-# Introuction
+# Introduction
 👦 Hello everyone, my name is Nguyễn Văn Hưởng.
 
 📚 I've studied in Hanoi University of Science and Technology.
